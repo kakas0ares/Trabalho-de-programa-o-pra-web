@@ -1,2 +1,2 @@
-# Trabalho-de-programa-o-pra-web
+grupo 6 2b
 vai dar certo! 
