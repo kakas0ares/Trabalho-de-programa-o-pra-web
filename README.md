@@ -1,2 +1,1 @@
-grupo 6 2b
-vai dar certo! 
+Grupo 6 2B
